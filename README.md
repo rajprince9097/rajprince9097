@@ -2,7 +2,7 @@
 - 👀 I’m interested in travelling and climbing
 - 🌱 I’m currently learning C.s.e in Govt. Polytechnic,Gaya
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me rajprince9097@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: MY hobby is singing
 
